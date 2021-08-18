@@ -8,3 +8,4 @@ Berikut daftar Volunter yang diterima:
 
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
 * Ahmad Fauzi, [Linkedin](https://www.linkedin.com/in/ahmad-fauzi-9b4aaa113).
+* Ahmad Rauf Syahputra, [Linkedin] (linkedin.com/in/ahmad-rauf-syahputra-063177205)
